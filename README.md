@@ -1,0 +1,2 @@
+# premium-tatting-shuttle-001-tatting-shuttle-technique-trac
+Tired of losing track of which shuttle technique you mastered last week, or struggling to remember the exact steps for that intricate split ring? The Tatting Shuttle Technique Tracker is your personal digital notebook designed to keep every stitch, pattern, and experiment organized in one beautiful Notion workspace.  This template eliminates the ch
